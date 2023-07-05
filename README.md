@@ -1,0 +1,1 @@
+# Galaxy-book2-750XEW-ubuntu-installing
